@@ -1,1 +1,1 @@
-# lmspkn
+# LMSpendidikanpancasila
